@@ -1,1 +1,1 @@
-# JavaSCRIPT_ESSENTIALS_PROJECT-Madupuru-Sai-Naveen-
+# JavaSCRIPT_ESSENTIALS_-Madupuru-Sai-Naveen-
